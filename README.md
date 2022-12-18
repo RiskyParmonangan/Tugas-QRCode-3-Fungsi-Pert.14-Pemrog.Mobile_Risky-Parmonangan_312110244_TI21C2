@@ -1,0 +1,1 @@
+# Tugas-QRCode-3-Fungsi-Pert.14-Pemrog.Mobile_Risky-Parmonangan_312110244_TI21C2
